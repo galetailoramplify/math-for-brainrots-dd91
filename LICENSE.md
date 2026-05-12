@@ -1,4 +1,4 @@
-#  
+#  automatic math for brainrots Scripts is the best math for brainrots Script, featuring auto-farm and fly. Safe and powerful for all your needs.
 
 
 
